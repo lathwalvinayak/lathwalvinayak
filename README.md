@@ -22,5 +22,5 @@ I'm passionate about turning data into actionable insights and solving complex b
 ---
 
 ### 📫 **Let's Connect:**  
-- LinkedIn: [Your LinkedIn Profile](www.linkedin.com/in/vinayak-lathwal) 
+- LinkedIn: (www.linkedin.com/in/vinayak-lathwal) 
 - Email: vinayak.study1234@gmail.com  
